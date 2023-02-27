@@ -1,2 +1,2 @@
-# reverendinsanityepub
-The epub.
+# ✒️ Reverend Insanity Epub
+
